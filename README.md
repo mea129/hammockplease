@@ -1,17 +1,17 @@
 
-## How to Set Up a Legit Camping Double Hammock
+# How to Set Up a Legit Camping Double Hammock
 _______________________________________________________________________________
-### Introduction
+## Introduction
 > Do you crave the thrill of camping, but not the hassle of tents?
 Redefine camping with Legit Camping's Double Hammock. By following these 10 simple steps, you can rest among the trees in minutes! 
 To purchase a Legit Camping Double Hammock, [Visit Legit Camping.](https://legitcamping.com/products/double-hammock)
 ______
-##### WARNINGS:
+#### WARNINGS:
 **Legit Camping Double Hammock has a maximum capacity of 400 pounds.**
 **Failure to adhere to these instructions may result in injury or death.**
 
 _______________________________________________________________________________
-#### Steps
+## Steps
 **1. Find a place to set-up.**
 **IMPORTANT: Survey the site for objects that may injure you if you fall out of the hammock.**
 * Seek a well established site that doesn't cross any pathways.
